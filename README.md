@@ -13,7 +13,7 @@ Aqui estão algumas ideias para você começar:
 - ❓ Curiosidade: Todos os mamíferos são capazes de saltar, menos os elefantes
 - 🎮 Jogo Preferido: Titanfall 2
 - 🐱 Tenho um Gato preto e branco
+ 
 [Música de vdd](https://www.youtube.com/watch?v=LMeluRz2wv4)
 
-- 
 ![](https://media1.tenor.com/m/9wI_bxPl3LIAAAAd/thumbs-up-bt7274.gif)
