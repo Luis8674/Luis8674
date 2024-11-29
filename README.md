@@ -14,6 +14,6 @@ Aqui estão algumas ideias para você começar:
 - 🎮 Jogo Preferido: Titanfall 2
 - 🐱 Tenho um Gato preto e branco
  
-[Música de vdd](https://www.youtube.com/watch?v=LMeluRz2wv4)
+[Música de verdade](https://www.youtube.com/watch?v=LMeluRz2wv4)
 
 ![](https://media1.tenor.com/m/9wI_bxPl3LIAAAAd/thumbs-up-bt7274.gif)
