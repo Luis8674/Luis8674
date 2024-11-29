@@ -4,7 +4,7 @@
 
 Aqui estão algumas ideias para você começar:
 
-- 🔭 Atualmente estou trabalhando na Escola
+- 🔭 Atualmente estou trabalhando em como convencer uma pessoa á ouvir música boa
 - 🌱 Atualmente estou aprendendo como fazer farm de ferro automática
 - 🤔 Estou procurando ajuda com zerar Lords of the Fallen
 - 💬 Pergunte-me sobre como zerar Minecraft
